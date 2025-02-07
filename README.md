@@ -1,2 +1,0 @@
-# Gyruu-
-Anak magang
